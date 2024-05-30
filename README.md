@@ -1,3 +1,3 @@
 - Java ☕ and python 🐍
-- Cybersec enthusiast
-- EN(learning) && PT
+- Cybersec/Linux enthusiast
+- EN(learning) 🇺🇸 / RU(learning) 🇷🇺 / PT 🇧🇷
